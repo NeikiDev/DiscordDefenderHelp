@@ -3,4 +3,4 @@
 
 #### Closed Beta
 
-`Message me on Twitter or Discord for Access!`
+`Message me on [Twitter](https://twitter.com/neiki__) or [Discord](https://discord.com/users/416999341006520321) for Access!`
